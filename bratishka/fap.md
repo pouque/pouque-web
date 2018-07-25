@@ -2,7 +2,7 @@
 
 *Author: Bratishka*
 
-*From: https://irclog.suburban.me/channel/irc.freenode.net/lor/?show-in-context=116045&limit=80*
+*From: [zoglog — 2015-10-18 01:07:34](https://irclog.suburban.me/channel/irc.freenode.net/lor/?show-in-context=116045&limit=80)*
 
     Я однажды
     Нечаянно на гнй прон подрочил
