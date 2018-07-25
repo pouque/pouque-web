@@ -52,3 +52,20 @@
     но было лень
     доел
     вот
+
+## Спутал #lor и туалет
+
+*Author: SM64InYourAnus*
+
+*From: [zoglog — 2018-07-25 21:48:32](https://irclog.suburban.me/channel/irc.freenode.net/lor/?show-in-context=1824877&limit=80)*
+
+    я однажды
+    посрал в #lor
+    сру в туалете
+    до меня потому дошло
+    что в #lor
+    но было лень
+    высрал всё
+    вот
+
+    а ещё я люблю обмазываться говном и дрочить
